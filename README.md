@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Scarlett
-- 👀 I’m interested in girls and boys
+- 👀 I’m interested in girls and boys (idk What it meant by that al stupid tho) 
 - ♥️ hobbies are writing, drawing, and just listening to music
 - 🌱 I’m currently learning maybe writing
 - 📫 How to reach me discord 
